@@ -1,1 +1,3 @@
 # Aventuras-golf-sticas-en-Argentina
+El golf ha sido la excusa perfecta para explorar paisajes y fortalecer amistades. Nuestros viajes van desde Potrerillos hasta el corazón de San Martín de los Andes. Cada cancha de golf nos ofrece desafíos y la belleza natural del lugar nos acompaña. Los preparativos de cada viaje son tan emocionantes como el propio juego; reservar hoteles, coordinar vuelos y planificar cada salida nos mantiene expectantes. El vínculo que se crea en cada viaje va más allá del deporte, es un reflejo de la pasión compartida y los momentos invaluables que solo tales experiencias pueden ofrecer.
+https://marcelohidalgosola.com.ar/una-aventura-de-golf-y-amistad-desde-potrerillos-hasta-san-martin-de-los-andes/
